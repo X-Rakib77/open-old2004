@@ -1,0 +1,14 @@
+🌀 THIS TOOL IS PAID BRO 🌀
+
+
+
+🌀 PRICE: 200 TAKA (BD🇧🇩)
+
+🌀price: 2.20$ USD (OTHER COUNTRYS)
+
+
+🌀 INSTALLATION 🌀
+
+
+
+git clone 
