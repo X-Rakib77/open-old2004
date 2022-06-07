@@ -7,7 +7,7 @@
 🌀price: 2.20$ USD (OTHER COUNTRYS)
 
 
-🌀 INSTALLATION 🌀
+🌀 COMMAND  🌀
 
 
 
