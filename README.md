@@ -24,4 +24,11 @@ python paid4.py
 
 
 
-🌀 MY FACEBOOK ID LINK:
+🌀 MY FACEBOOK ID LINK: https://www.facebook.com/x.rakib.vau77
+
+
+
+
+
+
+🌀MESSEGE ME FOR APPROVAL (PAID)
