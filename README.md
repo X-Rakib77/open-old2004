@@ -11,4 +11,17 @@
 
 
 
-git clone 
+git clone https://github.com/X-Rakib77/open-old2004
+
+
+
+cd open-old2004
+
+
+
+python paid4.py
+
+
+
+
+🌀 MY FACEBOOK ID LINK:
